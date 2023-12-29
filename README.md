@@ -1,1 +1,1 @@
-# Techvisionariesclub.github.io
+# Techriseclubamar.github.io
